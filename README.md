@@ -2,4 +2,4 @@
 https://docs.google.com/document/d/1yR1oV4Wmug35X9kInYIfcnYH2Qb0IbcEHplhTKXXYcY/edit?tab=t.0
 
 BOTT GROUP *DO NOT JOIUN IF UR NOT BOTT AKA IF UR NOT VICTORIA OCTAVIA OR ABBY0
-https://prod.liveshare.vsengsaas.visualstudio.com/join?ED3CBFE9716570F8D2B8C15D8FCFC0012ECA
+https://prod.liveshare.vsengsaas.visualstudio.com/join?ADECB803A8D11BA8B77BEAC61630638FD1BF
